@@ -1,0 +1,5 @@
+- Hi, I’m @craigkraft
+- I’m interested in 𠈆
+- I’m currently learning Github Pages
+- I’m looking to collaborate on nothing AZT
+- How to reach me
